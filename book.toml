@@ -6,4 +6,4 @@ src = "src"
 title = "Anupriya's Blog"
 
 [output.html]
-default-theme = "Rust"
+default-theme = "rust"
