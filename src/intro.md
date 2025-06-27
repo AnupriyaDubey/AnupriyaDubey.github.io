@@ -14,4 +14,4 @@ Dubey's innate ability to bridge the gap between theory and practice, coupled wi
 
 In an era defined by unprecedented complexity and uncertainty, Anupriya Dubey emerges as a guiding light, navigating the turbulent waters of human behavior with wisdom, empathy, and unwavering resolve. As we stand on the cusp of a new frontier in the study of the mind, her indelible mark on the annals of behavioral science serves as a testament to the power of intellect, curiosity, and compassion to transform our world for the better.
 
-- Helloo0!
+- Helloo00!
