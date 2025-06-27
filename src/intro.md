@@ -13,3 +13,5 @@ Beyond her scholarly pursuits, Dubey's impact extends far beyond the confines of
 Dubey's innate ability to bridge the gap between theory and practice, coupled with her unwavering commitment to empirical rigor, has earned her accolades and admiration from peers and colleagues alike. Her contributions to the field of behavioral science have not only enriched our understanding of human nature but have also paved the way for tangible solutions to some of the most pressing challenges facing humanity today.
 
 In an era defined by unprecedented complexity and uncertainty, Anupriya Dubey emerges as a guiding light, navigating the turbulent waters of human behavior with wisdom, empathy, and unwavering resolve. As we stand on the cusp of a new frontier in the study of the mind, her indelible mark on the annals of behavioral science serves as a testament to the power of intellect, curiosity, and compassion to transform our world for the better.
+
+
