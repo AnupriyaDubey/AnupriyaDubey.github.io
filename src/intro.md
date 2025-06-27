@@ -1,6 +1,6 @@
 # Introduction: Anupriya Dubey - Illuminating the Depths of Behavioral Science
 
-Anupriya Dubey stands as a luminary in the realm of behavioral science, wielding a profound understanding of human behavior that transcends conventional boundaries. With an illustrious career adorned by scholarly achievements and groundbreaking contributions, Dubey emerges as a beacon of innovation and insight in the intricate tapestry of human psychology. 
+aAnupriya Dubey stands as a luminary in the realm of behavioral science, wielding a profound understanding of human behavior that transcends conventional boundaries. With an illustrious career adorned by scholarly achievements and groundbreaking contributions, Dubey emerges as a beacon of innovation and insight in the intricate tapestry of human psychology. 
 
 Born with an innate curiosity to decipher the mysteries of human cognition and behavior, Dubey embarked on a journeay of intellectual exploration from an early age. Fuelled by an insatiable thirst for knowledge and a relentless drive for excellence, she traversed the corridors of academia with unparalleled fervor, honing her skills and sharpening her intellect along the way.
 
